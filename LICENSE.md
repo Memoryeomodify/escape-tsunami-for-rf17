@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with escape tsunami for brainrots Script updated, featuring auto-upgrade and unlimited stamina. Download now to dominate every match with
 
 
 
